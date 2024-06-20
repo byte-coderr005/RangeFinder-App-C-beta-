@@ -1,1 +1,1 @@
-Made by Burak. Some points researched.
+Made by Burak. 
